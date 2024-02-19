@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/17MAbrnhDCB2yFDPpoGu4yFh-F0ih-_g1/view?usp=sharing](https://drive.google.com/file/d/17MAbrnhDCB2yFDPpoGu4yFh-F0ih-_g1/view?usp=sharing)
 
-- ⚡ Fun fact **I listen to a lot of hip-hop music, enjoying**
+- ⚡ Fun fact **I listen to a lot of hip-hop music, enjoy working out, and my favorite anime is Hunter x Hunter**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
