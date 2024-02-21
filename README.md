@@ -17,9 +17,9 @@
 
 - 📫 How to reach me **haythamzaami12@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/17MAbrnhDCB2yFDPpoGu4yFh-F0ih-_g1/view?usp=sharing](https://drive.google.com/file/d/17MAbrnhDCB2yFDPpoGu4yFh-F0ih-_g1/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1WLDoORq17f7p2wOH1aKxcXRpaL5dGcik/view?usp=sharing](https://drive.google.com/file/d/1WLDoORq17f7p2wOH1aKxcXRpaL5dGcik/view?usp=sharing)
 
-- ⚡ Fun fact **I listen to a lot of hip-hop music, enjoy working out, and my favorite anime is Hunter x Hunter**
+- ⚡ Fun fact **I listen to a lot of hip-hop music, enjoying**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
