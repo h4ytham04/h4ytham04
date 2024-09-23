@@ -17,8 +17,6 @@
 
 - 📫 How to reach me **haythamzaami12@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1HRXxB-IxitxXSSSrHVEwAAR75GSeAuqN/view?usp=sharing]
-
 - ⚡ Fun fact **I listen to a lot of hip-hop music, enjoying**
 
 <h3 align="left">Connect with me:</h3>
