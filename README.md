@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **haythamzaami12@gmail.com**
 
-- ⚡ Fun fact **I listen to a lot of hip-hop music, enjoying**
+- ⚡ Fun fact **I listen to a lot of hip-hop music
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
