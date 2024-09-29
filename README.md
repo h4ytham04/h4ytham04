@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **a mock-up e-commerce store! (no link yet :( )**
 
-- 🌱 I’m currently learning **JavaFX, Spring, HTML, CSS**
+- 🌱 I’m currently learning **C++, Pandas, MySQL**
 
 - 👯 I’m looking to collaborate on **anything! always willing to help in anyway I can**
 
@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **haythamzaami12@gmail.com**
 
-- ⚡ Fun fact **I listen to a lot of hip-hop music
+- ⚡ Fun fact **I listen to a lot of hip-hop music and like Hunter x Hunter!
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
