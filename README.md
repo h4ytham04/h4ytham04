@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Haytham Zaami</h1>
 <h3 align="center">Aspiring computer science student</h3>
 
-- 🔭 I’m currently working on **a mock-up e-commerce store! (no link yet :( )**
+- 🔭 I’m currently working on ** Python Projects!**
 
 - 🌱 I’m currently learning **C++, Pandas, MySQL**
 
