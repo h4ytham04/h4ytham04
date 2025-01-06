@@ -7,8 +7,6 @@
 
 - 👯 I’m looking to collaborate on **anything! always willing to help in anyway I can**
 
-- 🤝 I’m looking for help with [my mp3 player application. My buttons aren't sized correctly, nor can I export it into a .exe file. Any help would be appreciated. Thanks!](https://github.com/h4ytham04/Music_Shuffler)
-
 - 👨‍💻 All of my projects are available at [https://github.com/h4ytham04](https://github.com/h4ytham04)
 
 - 📝 I have a graphic design portfolio! [https://www.behance.net/haythamzaami](https://www.behance.net/haythamzaami)
