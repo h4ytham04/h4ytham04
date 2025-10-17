@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Haytham Zaami</h1>
+<h1 align="center">Hi! I'm Haytham Zaami</h1>
 <h3 align="center">Aspiring computer science student</h3>
 
 - 🔭 I’m currently working on **Python Projects!**
@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **haythamzaami12@gmail.com**
 
-- ⚡ Fun fact **I listen to a lot of hip-hop music and like Hunter x Hunter!**
+- ⚡ Fun fact **I like Hunter x Hunter!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
